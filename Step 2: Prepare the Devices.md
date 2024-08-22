@@ -1,0 +1,5 @@
+- I opened up the iPads and grabbed the right size of screen protector and case to setup the iPads.<br>
+- I opened the screen protector and put the iPad into the tray part of the screen protector and installed it. <br>
+- I opened the case and put it onto the iPad "with great effort, not a struggle at all" <br>
+- I put the iPads on top of their respective boxes so we can match up the SN and IMEI once we turn it on. <br>
+- Than put them back on the shelf in the storage room. <br>
